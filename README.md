@@ -1,0 +1,1 @@
+# Koperasi Pemuda Sejahtera Karawang
